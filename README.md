@@ -1,5 +1,3 @@
-Privacy Policy
-
 
 Limitless Outdoors LLC built the Limitless Outdoors app as a Free app. This SERVICE is provided by Limitless Outdoors LLC at no cost and is intended for use as is.
 
